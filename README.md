@@ -11,7 +11,7 @@
 
 - 👨‍💻 All of my projects are available at [My Portfolio](https://github.com/zaidmirza24)
 
-- 📫 How to reach me **zaidmirza2403@gmail.com**
+- 📫 How to reach me **mirzamohdzaid110@gmail.com**
 
 - 📄 Know about my experiences on [LinkedIn](https://www.linkedin.com/in/zaidmirza24/)
 
